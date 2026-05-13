@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with updated Vegas Pro for PC | Vegas Pro for Windows Overlay | AI-enhanced-editing + slow-motion, the #1 overlay. Includes
 
 
 
